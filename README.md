@@ -1,4 +1,4 @@
-# - Sobre mim
+# - Quase um diagrama
 - Eu sou enzo, um diamante a ser lapidado na arte da poesia, ando de skate, gosto de café, jogo futebol,
 - dentre outras habilidades que eu tenho para desfrutar :japanese_goblin:
 - Gosto de ser sozinho, me acompanho comigo, tenho um pé atrás até com meu melhor amigo :skull_and_crossbones:
